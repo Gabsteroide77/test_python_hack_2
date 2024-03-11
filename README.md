@@ -1,3 +1,5 @@
+![image](https://github.com/Gabsteroide77/test_python_hack_2/assets/142457661/712caee0-b30d-45f8-81fe-53cee84f2649)
+
 # SOCIAL OPLESK
 ### 🏴‍☠️ HACKS 
 
